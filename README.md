@@ -1,4 +1,4 @@
-# CompTIA+
+# CompTIA+<img src="https://logowik.com/content/uploads/images/comptia8985.logowik.com.webp" /></a>
 
 ## Verification Code:
 WX49FH0RF2RQ1T35
