@@ -1,4 +1,4 @@
-<img src="https://logowik.com/content/uploads/images/comptia8985.logowik.com.webp" /></a>
+<img src="https://ih1.redbubble.net/image.2132215218.7681/st,small,507x507-pad,600x600,f8f8f8.jpg" /></a>
 
 ## Verification Code:
 WX49FH0RF2RQ1T35
